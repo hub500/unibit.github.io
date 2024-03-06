@@ -7,6 +7,10 @@
 
 [https://twitter.com/btc690000](https://twitter.com/btc690000)
 
+* CryptoChan
+
+[https://twitter.com/0xCryptoChan](https://twitter.com/0xCryptoChan)
+
 * Ai 姨
 
 [https://twitter.com/ai_9684xtpa](https://twitter.com/ai_9684xtpa)
