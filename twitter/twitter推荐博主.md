@@ -19,3 +19,6 @@
 
 [https://twitter.com/bqjushen](https://twitter.com/bqjushen)
 
+* Lin姐@Deribit
+
+[https://twitter.com/LinChen91162689](https://twitter.com/LinChen91162689)
